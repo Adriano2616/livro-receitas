@@ -3,11 +3,11 @@
 
 **Ingredientes Molho de Queijo**
 
-- 300 gramas de requeij?o cremoso_
-- 1 x?cara de ch? de queijo parmes?o ralado_
-- 1 x?cara de ch? de queijo gorgonzola amassado_
-- 2 x?caras de ch? de queijo mussarela ralado_
-- 1 x?cara de ch? de leite_
+- 300 gramas de requeij?o cremoso
+- 1 x?cara de ch? de queijo parmes?o ralado
+- 1 x?cara  de ch? de queijo gorgonzola amassado
+- 2 x?caras de ch? de queijo mussarela ralado
+- 1 x?cara de ch? de leite
 
 
 **Ingredientes Molho Branco**
@@ -49,7 +49,7 @@
 
 - Retire o papel alum?nio e asse por mais 20 minutos aproximadamente.
 
-- Quando a lasanha  estiver com a superf?cie dourada, retire e sirva._
+- Quando a lasanha  estiver com a superf?cie dourada, retire e sirva.
 
 - Se a massa de lasanha n?o for a pr?-pronta para ir ao forno, ent?o ser? necess?rio cozinh?-la antes de colocar na forma. 
 
