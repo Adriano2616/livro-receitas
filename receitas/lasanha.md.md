@@ -4,8 +4,8 @@
 **Ingredientes Molho de Queijo**
 
 - 300 gramas de requeij?o cremoso_
-- 1 x?cara de ch? de queijo parmes?o ralado_
-- 1 x?cara de ch? de queijo gorgonzola amassado_
+- 1 xícara de ch? de queijo parmes?o ralado_
+- 1 x?cara de ch? de queijo gorgonzola 
 - 2 x?caras de ch? de queijo mussarela ralado_
 - 1 x?cara de ch? de leite_
 
